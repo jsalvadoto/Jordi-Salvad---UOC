@@ -1,2 +1,2 @@
-# Jordi-Salvad---UOC
+# Jordi-Salvado-UOC
 Enginyeria Informàtica
